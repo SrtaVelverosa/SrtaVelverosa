@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @SrtaVelverosa
+- 👋 Ola,sou @SrtaVelverosa
 - 👀 Tenho interesse em Aprender e ensinar coisas novas 
-- 🌱 Sim,estou aprendendo varias progamaçoes
+- 🌱 Sim,estou aprendendo varias programaçãoes
 - 💞️ procuro colaborar e ajudar tudo que eu poder 
 - 📫 Entrar em cantato comigo pelo meu gmail Modernaemily@gmail.com
 - 😄 Pronomes ela/dela
